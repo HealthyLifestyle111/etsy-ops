@@ -1,22 +1,25 @@
-# Velvet Forest — 9oz Amber | Hand-Poured Clean Burn
+# Velvet Forest — 9oz Amber | Fir, Citrus & Velvet Woods
 
 ## Highlights
-- Clean burn, phthalate-free fragrance
-- Hand-poured in small batches
-- 9oz Amber vessel
+- Clean burn, phthalate-free soy blend
+- Hand-poured small batch in the USA
+- Long, even burn ~45+ hours
+- Elegant amber glass vessel
 
 ## Description
-A calming, intentional scent crafted for slow evenings and soft light. Small-batch, consistent throw, luxury finish.
+A luxe forest walk—fir needles and soft citrus glide into ambered woods. Silky, quiet, grown-up. Perfect for slow evenings, gifting, and winter rituals.
 
-## Specs
-- Size: 9oz
-- Vessel: Amber
-- Burn time: ~45+ hours
-- Wax: Soy blend, cotton wick
-- Made in small batches in the USA
+## Materials
+Soy blend wax, cotton wick, premium fragrance oils (phthalate-free), amber glass, metal lid.
 
-## Image folder
+## Size / Burn
+9oz | ~45+ hours | Best for bedrooms, living rooms, and entry tables.
+
+## Care
+Trim wick to 1/4" before each burn. First burn 2–3 hrs until the melt pool reaches the edge.
+
+## Image folder (Drive)
 drive://Candles/CB9OZ_VELVET_FOREST/
 
 ## Tags
-forest candle, evergreen candle, holiday candle, clean burn candle, soy candle, gift for her, gift for him, winter candle, cabin decor, earthy scent, lodge, woodsy candle, slow living
+forest candle, evergreen candle, holiday candle, clean burn candle, soy candle, gift for her, gift for him, winter candle, cabin decor, earthy scent, woodsy candle, lodge, slow living
