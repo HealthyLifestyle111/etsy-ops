@@ -1,4 +1,4 @@
-# Velvet Forest — 9oz Amber | Hand-Poured Clean Burn
+# Skull & Roses — 9oz Amber | Black Pepper, Rosewood & Smoke
 
 ## Highlights
 - Clean burn, phthalate-free fragrance
@@ -16,7 +16,7 @@ A calming, intentional scent crafted for slow evenings and soft light. Small-bat
 - Made in small batches in the USA
 
 ## Image folder
-drive://Candles/CB9OZ_VELVET_FOREST/
+drive://Candles/CB9OZ_SKULL_ROSES/
 
 ## Tags
-forest candle, evergreen candle, holiday candle, clean burn candle, soy candle, gift for her, gift for him, winter candle, cabin decor, earthy scent, lodge, woodsy candle, slow living
+skull candle, roses candle, gothic decor, alternative gift, smoky rose, edgy candle, dark floral, rocker aesthetic, moody home

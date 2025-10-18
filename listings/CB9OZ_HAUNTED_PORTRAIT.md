@@ -1,4 +1,4 @@
-# Velvet Forest — 9oz Amber | Hand-Poured Clean Burn
+# Haunted Portrait — 9oz Amber | Smoky Amber, Clove & Dark Rose
 
 ## Highlights
 - Clean burn, phthalate-free fragrance
@@ -16,7 +16,7 @@ A calming, intentional scent crafted for slow evenings and soft light. Small-bat
 - Made in small batches in the USA
 
 ## Image folder
-drive://Candles/CB9OZ_VELVET_FOREST/
+drive://Candles/CB9OZ_HAUNTED_PORTRAIT/
 
 ## Tags
-forest candle, evergreen candle, holiday candle, clean burn candle, soy candle, gift for her, gift for him, winter candle, cabin decor, earthy scent, lodge, woodsy candle, slow living
+halloween candle, gothic candle, smoky amber candle, clove candle, dark rose, spooky decor, moody candle, fall candle, witchy, victorian, baroque
