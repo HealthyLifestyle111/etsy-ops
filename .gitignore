@@ -1,0 +1,12 @@
+# keep this repo text-only
+*.png
+*.jpg
+*.jpeg
+*.webp
+*.tif
+*.psd
+*.ai
+*.zip
+*.mp4
+.DS_Store
+Thumbs.db
